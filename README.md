@@ -1,1 +1,1 @@
-# The-first-project-after-the-session
+# The-first-project-after-Course
